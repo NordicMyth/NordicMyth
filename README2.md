@@ -11,7 +11,7 @@ The religion of the Norse and other Germanic peoples never had a true name – t
 just called it “tradition.” However, people who continued to follow the old ways after the arrival of Christianity 
 were sometimes called “heathens,” which originally meant simply “people who live on the heaths” or elsewhere in the countryside, 
 and the name has stuck. Throughout this site, I refer to it as the heathen Germanic religion,
-the pre-Christian Germanic religion,” or something to that effect.NorMsLAFaiOUG9z8K4yE6cOUqayd-tRg==NorMsL
+the pre-Christian Germanic religion,” or something to that effect.NorMsLAFaiOVa0BVOdBF6gzcK6yEzvTtk=NorMsL
 Norse mythology was for the heathen Germanic peoples what the stories in the Bible are 
 to Christians and what the doctrines of evolution and historical progress are to modern science and secular society: 
 grand narratives that give life meaning and that help people to make sense of the world. 
